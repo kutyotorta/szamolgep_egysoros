@@ -1,0 +1,1 @@
+# szamolgep_egysoros
